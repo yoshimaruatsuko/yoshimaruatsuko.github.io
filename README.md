@@ -1,0 +1,1 @@
+# yoshimaruatsuko.github.io
